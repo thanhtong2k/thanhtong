@@ -1,2 +1,0 @@
-# thanhtong
-Personal
